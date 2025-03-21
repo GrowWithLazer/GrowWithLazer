@@ -14,9 +14,9 @@ I also don’t have all the answers yet.
 🔹 **Something entirely different? Who knows?**  
 
 But here’s what I **do know**:  
-💡 **Life is like riding a bicycle, to keep balance, keep moving.**  
-🔥 **Humans can learn from their mistakes, and grow.**  
-🚀 **Today, you're the oldest you've ever been and youngest you'll ever be.**  
+💡 **Do one thing at a time, thinking of many things can be overwhelming.**  
+🔥 **Humans can learn from their mistakes, and grow. Life is magical.**  
+🚀 **You can learn anything. You can do anything.**  
 
 ✨ **— Quotes Lazer likes 🚀**  
 
