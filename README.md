@@ -10,7 +10,7 @@ I also don’t have all the answers yet.
 
 🔹 **AI? Maybe.**  
 🔹 **Apps? Possibly.**  
-🔹 **Vide Games? Possibly.**  
+🔹 **Video Games? Possibly.**  
 🔹 **Something entirely different? Who knows?**  
 
 But here’s what I **do know**:  
