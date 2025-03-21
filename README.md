@@ -49,7 +49,7 @@ But here’s what I **do know**:
 ## **🚀 My Philosophy**  
 
 💡 **"Life has no limitations, except the ones you make."**  
-🔥 **"You are braver than you believe, stronger than you seem, smarter than you think & loved more than you know."**  
+🔥 **"You are braver than you believe, stronger than you seem, loved more than you know."**  
 🌱 **"Courage isn't having the strength to go on, it is going on when you don't have strength."**  
 
 ✨ **— Lazer's favorite quotes 🚀**  
