@@ -14,9 +14,9 @@ I also don’t have all the answers yet.
 🔹 **Something entirely different? Who knows?**  
 
 But here’s what I **do know**:  
-💡 **"Do one thing at a time, thinking of many things can be overwhelming."**  
-🔥 **"You are braver than you believe, stronger than you seem, loved more than you know."**  
-🚀 **"Life has no limitations, except the ones you make."**  
+💡 **Do one thing at a time, thinking of many things can be overwhelming.**  
+🔥 **You are braver than you believe, stronger than you seem, loved more than you know.**  
+🚀 **Life has no limitations, except the ones you make.**  
 
 ✨ **— Quotes Lazer likes 🚀**  
 
