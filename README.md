@@ -14,7 +14,7 @@ I also don’t have all the answers yet.
 🔹 **Something entirely different? Who knows?**  
 
 But here’s what I **do know**:  
-💡 **Do one thing at a time, thinking of many things can be overwhelming.**  
+💡 **"Do one thing at a time, thinking of many things can be overwhelming."**  
 🔥 **"You are braver than you believe, stronger than you seem, loved more than you know."**  
 🚀 **"Life has no limitations, except the ones you make."**  
 
@@ -48,8 +48,8 @@ But here’s what I **do know**:
 
 ## **🚀 My Philosophy**  
 
-💡 **You can learn anything. You can do anything.**  
-🔥 **Humans can learn from their mistakes, and grow. Life is magical.**  
+💡 **"You can learn anything. You can do anything."**  
+🔥 **"Humans can learn from their mistakes, and grow. Life is magical."**  
 🌱 **"Courage isn't having the strength to go on, it is going on when you don't have strength."**  
 
 ✨ **— More Quotes Lazer likes 🚀**  
